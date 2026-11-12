@@ -3,13 +3,13 @@
 # 🚀 أكواد خصم vidIQ الصالحة 2026 | خصم فوري يصل إلى 50%
 
 [![vidIQ Promo Codes](https://img.shields.io/badge/vidIQ_Discount-Up_to_50%25_OFF-0066FF?style=for-the-badge&logo=youtube&logoColor=white)](https://vidiq.com/majdfatihy)
-[![Live Demo](https://img.shields.io/badge/معاينة_الموقع_المباشر-Live_Page-00D4FF?style=for-the-badge&logo=github&logoColor=black)](https://majdfatihy.github.io/vidiq-discount-codes/)
+[![Live Demo](https://img.shields.io/badge/معاينة_الموقع_المباشر-Live_Page-00D4FF?style=for-the-badge&logo=github&logoColor=black)](https://dev.majdfatihy.com/vidiq-discount-codes/)
 [![YouTube Certified](https://img.shields.io/badge/YouTube-Certified_Tool-10B981?style=for-the-badge&logo=checkmarx&logoColor=white)](https://vidiq.com/majdfatihy)
 
 مرحباً بك في الدليل الرسمي والمحدث للحصول على **أحدث أكواد وكوبونات خصم منصة [vidIQ](https://vidiq.com/majdfatihy)** الفعالة لعام **2026**.  
 توفر هذه الصفحة لصناع المحتوى واليوتيوبرز أعلى نسبة خصم متاحة على باقات **vidIQ Boost** و **vidIQ Coaching** لتصدر نتائج بحث اليوتيوب (YouTube SEO) ومضاعفة المشاهدات والأرباح باستخدام الذكاء الاصطناعي.
 
-🔗 **رابط الصفحة التفاعلية وحاسبة التوفير:** [اضغط هنا لزيارة صفحة أكواد خصم vidIQ](https://majdfatihy.github.io/vidiq-discount-codes/)  
+🔗 **رابط الصفحة التفاعلية وحاسبة التوفير:** [اضغط هنا لزيارة صفحة أكواد خصم vidIQ](https://dev.majdfatihy.com/vidiq-discount-codes/)  
 🔗 **رابط التسجيل المباشر لتفعيل الخصم:** [https://vidiq.com/majdfatihy](https://vidiq.com/majdfatihy)
 
 ---
